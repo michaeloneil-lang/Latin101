@@ -1,1 +1,1 @@
-Iupiter ac Iuno rex reginae erant. Mars ac Vulcanus filii eorum erant. Iupiter filia, Minerva, erat soror eorum. Venus Vulcanus uxoris erat. Venus huic bonum est erat. 
+Iupiter ac Iuno rex regina deorum erant. Mars ac Vulcanus filii eorum erant. Iovis filia, Minerva, erat soror eorum. Venus Vulcani uxor erat. Venus bona erat. 
