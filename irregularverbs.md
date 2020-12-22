@@ -1,4 +1,6 @@
-1. Third person singular perfect indicative active 
+**Satisfactory:  full credit**
+
+1. Third person singular perfect indicative active
 2. present active infinitive
 3. Thrid singular present indicative active
 4. Third singular imperfect indicative active
