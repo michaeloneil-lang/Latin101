@@ -1,4 +1,6 @@
-a. Hercules leonem Nemeum necet? 
+**Satisfactory:  full credit**
+
+a. Hercules leonem Nemeum necet?
 b. Hercules leonem Nemeum necaret?
 a. pellem eius pro tegumento habeat?
 b. pellem eius pro tegumento haberet?
